@@ -1,0 +1,2 @@
+# premium-scabbard-make-001-scabbard-wet-mold-throat-cha
+Struggling to nail consistent throat chape geometry and wet mold profiles in your scabbard builds? The Scabbard Wet Mold &amp; Throat Chape Craft Lab eliminates guesswork by giving you a complete system for precision mold design and chape construction.  This Notion template transforms scattered notes and trial-and-error into a structured craft lab wher
